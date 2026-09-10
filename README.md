@@ -43,7 +43,7 @@ Nairobi-based · serving clients countrywide
 
 - [nextlevel254.co.ke](https://nextlevel254.co.ke)
 - [crossandcrownkenya.org](https://crossandcrownkenya.org)
-- [heavenlyhelpers.org](https://heavenlyhelpers.org)
+- [givinghelperskenya.org](https://givinghelperskenya.org)
 
 ### Get in touch
 
